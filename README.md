@@ -1,5 +1,5 @@
 ### Oii!
-Me chamo Camila e sou novata por toda a area de tecnologia,mas posso adiantar que estou adorando o desafio dessa migração de profissão.<br>
+Me chamo Camila, sou novata por toda a area de tecnologia, mas posso adiantar que estou adorando o desafio dessa migração de profissão.<br>
 Apesar de não ter muito domínio da área, estou disposta a estudar, aprender e contribuir com o que sei.<br>
 <br>
 *Fiquem a vontade para opinar sobre os meus trabalhos e vamos conversar*! ❤️<br>
