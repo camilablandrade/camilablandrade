@@ -1,4 +1,7 @@
-### Hi there 👋
+### Oii!
+Me chamo Camila e sou novata por toda a area de tecnologia, mas posso adiantar que estou adorando o desafio desta migração de profissões.<br>
+Apesar de não ter muito domínio da área, estou disposta a estudar, aprender e contribuir com o que sei.<br>
+*Fiquem a vontade para opinar sobre os meus trabalhos e vamos conversar*! :)
 
 <!--
 **camilablandrade/camilablandrade** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
