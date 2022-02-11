@@ -2,7 +2,7 @@
 Me chamo Camila, sou novata por toda a area de tecnologia, mas posso adiantar que estou adorando o desafio dessa migração de profissão.<br>
 Apesar de não ter muito domínio da área, estou disposta a estudar, aprender e contribuir com o que sei.<br>
 <br>
-*Fiquem a vontade para opinar sobre os meus trabalhos e vamos conversar*! ❤️<br>
+*Fiquem a vontade para opinar sobre os meus trabalhos e puxar conversa*! ❤️<br>
 <br>
 [![Linkedin Badge](https://img.shields.io/badge/-LinkedIn-blue?style=flat-square&logo=Linkedin&logoColor=white&link=LINK_LINKEDIN)](https://www.linkedin.com/in/camilablandrade
 )
